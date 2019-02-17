@@ -11,5 +11,5 @@ Actualmente estoy trabajando en una SOFOM ENR, en donde desempeño en el área de 
 
 
 
-Mi nombre es Paulina Milenka, tengo 20 años y soy de Morelia Michoacán. Estudio Ingeniería Financiera en el ITESO en Guadalajara México. 
+Mi nombre es Paulina Milenka, tengo 20 años y soy de Morelia Michoacán. Estudio Ingeniería Financiera en el ITESO en Guadalajara Jalisco. 
 
